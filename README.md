@@ -1,0 +1,2 @@
+# Shokhruzbek
+Patience 🥀
